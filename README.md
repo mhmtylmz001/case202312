@@ -1,0 +1,1 @@
+Tables.docx dosyasında açıklamaları bulabilirsiniz
